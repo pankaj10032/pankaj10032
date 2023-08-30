@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **pankajgoyal02003@gmail.com**
 
-- 📄 Know about my experiences [https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbXRMYWdzdHBhdWFZYWNQbE9FbENTdzZWY29DQXxBQ3Jtc0tuVFhHeU53c21rSXlJd2VYRVg3ZndzLUVhWGgzTEIyUmtIUXRwaWNzZ2t0N0kwT0hRQ1BqTFAyaVp2WnV2d0w0NjFkUEFtS1h1VVhGb2EzTGpWcDNaTENhUEVRYnJGb21Qd0hhVWtlX1h5b0I2SjJwRQ&q=https%3A%2F%2Frahuldkjain.github.io%2Fgh-profile-readme-generator%2F&v=HD4cnRuSGN0](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbXRMYWdzdHBhdWFZYWNQbE9FbENTdzZWY29DQXxBQ3Jtc0tuVFhHeU53c21rSXlJd2VYRVg3ZndzLUVhWGgzTEIyUmtIUXRwaWNzZ2t0N0kwT0hRQ1BqTFAyaVp2WnV2d0w0NjFkUEFtS1h1VVhGb2EzTGpWcDNaTENhUEVRYnJGb21Qd0hhVWtlX1h5b0I2SjJwRQ&q=https%3A%2F%2Frahuldkjain.github.io%2Fgh-profile-readme-generator%2F&v=HD4cnRuSGN0)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
